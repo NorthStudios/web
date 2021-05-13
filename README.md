@@ -1,2 +1,2 @@
-# Northstudios's Website
+# North Studios's Website
 
